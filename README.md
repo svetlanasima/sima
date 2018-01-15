@@ -23,6 +23,3 @@
 <https://vk.com/id84339784>
 
 <https://www.instagram.com/paremmuus_/>
-
-
-![*фото*] 
