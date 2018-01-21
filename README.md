@@ -24,7 +24,7 @@
 
 <https://www.instagram.com/paremmuus_/>
 
-![фото]
+![Alt text](https://github.com/svetlanasima/sima/blob/master/OflDEwvm0to.jpg)
 
 ### расписание 
 
