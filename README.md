@@ -28,6 +28,8 @@
 
 ![Alt text](https://github.com/svetlanasima/sima/blob/master/OflDEwvm0to.jpg)
 
+![Alt text](https://github.com/svetlanasima/sima/blob/master/44.jpg)
+
 ### расписание 
 
 | Понедельник    | Вторник | Среда    | Четверг    | Пятница    |
